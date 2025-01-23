@@ -4,7 +4,7 @@
 
 The birth of night
 
-paralyzed and horror-
+paralyzed by horror-
 
 reliable novelty questioned,
 
@@ -14,4 +14,4 @@ exploiting theater to global internet
 
 ![Arival of a Train - IDEA 120 Image](https://github.com/user-attachments/assets/f5708e72-6b07-424f-9886-e97455ba292f)
 
-[Shoegaze Comp.85](phttps://youtu.be/G-SgcX5WS6o?feature=shared)
+[Shoegaze Comp.85](phttps://youtu.be/G-SgcX5WS6o?feature=shared).
