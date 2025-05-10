@@ -1,1 +1,3 @@
 Game Proposal!
+
+  I will be making a Zombie Apocolypse based game. The genres it would fall under would be horror/suspense. You wake up in a basement in the beginning in the first person point of view as a young 15-year-old Mexican girl who just had her Quince since the apocolypse started. There will be three offical endings but the three choices have its additional endings if you choose. You have to make the choices to defend yourself or attack others. The farther you go, the harder it is to turn back. I also want to add the illusion of control in this concept, so while the endings are different, the overall theme is consistent since it's in a world deprived of normalcy. 
